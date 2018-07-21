@@ -1,3 +1,0 @@
-# tumblrtheme
-
-heeeeeeey, bibi here
